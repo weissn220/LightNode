@@ -1,4 +1,4 @@
-# LightNode Coupon Codes and 2024 LightNode Latest Deals Compilation Summary
+# LightNode Coupon Codes and 2025 LightNode Latest Deals Compilation Summary
 
 ### LightNode Introduction
 
